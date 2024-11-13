@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Vanessa Zuniga
+- 👀 I’m interested in making my own applications/websites !
+- 🌱 I’m currently learning coding for my degree !
+- 💞️ I’m looking to collaborate on projects with others !
+- 📫 How to reach me vanessazuniga124@icloud.com
+- ⚡ Fun fact: I love crocheting !
